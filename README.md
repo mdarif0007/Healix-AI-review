@@ -72,30 +72,30 @@ No prior experience or technical skills needed
 
 ## Healix AI OTOs (One-Time Offers)
 OTO1: Healix AI Unlimited ($10 Discount)
-[Unlock Unlimited Access](https://gethealixai.com/unlimited)
+[Unlock Unlimited Access](https://xgenhub.com/hel)
 Remove all limits & create unlimited websites
 64x more traffic and sales with no extra effort
 No need to learn anything new—just upgrade & profit
 Priority customer support for fast resolutions
 ### OTO2: Healix AI DFY ($50 Discount)
-[Done-For-You Setup](https://gethealixai.com/dfy/)
+[Done-For-You Setup](https://xgenhub.com/hel)
 Get 48 ready-made profitable websites
 Pre-configured traffic sources for immediate results
 No manual work—just copy, paste, and profit
 ### OTO3: Healix AI Traffic Prime ($20 Discount)
-[Exclusive Buyer Traffic](https://gethealixai.com/traffic)
+[Exclusive Buyer Traffic](https://xgenhub.com/hel)
 Receive 1,000-2,000 targeted visitors daily
 Generate $200-$300 extra per day with minimal effort
 ### OTO4: Healix AI Bundle ($50 Discount)
-[Bundle Deal](https://gethealixai.com/bundle)
+[Bundle Deal](https://xgenhub.com/hel)
 Make $1,129.01 in just 45 minutes
 No upfront costs, no work required—just copy & cash in
 ### OTO5: Healix AI Agency ($50 Discount)
-[Start Your Own Agency](https://gethealixai.com/agency)
+[Start Your Own Agency](https://xgenhub.com/hel)
 Earn $328 per click without using the software yourself
 Add a new income stream & make $10,000+ per month
 ### OTO6: Healix AI DFY Agency ($30 Discount)
-[Complete Agency Setup](https://gethealixai.com/dfy-agency-setup)
+[Complete Agency Setup](https://xgenhub.com/hel)
 Let the Healix AI team set up your business for you
 Completely hands-free, ready to generate passive income
 
